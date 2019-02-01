@@ -12,9 +12,9 @@ ________________________________________________________________________________
 
 **Original: [Jcw87](https://github.com/Jcw87)**
 
-**Song Used: [[DustTale] Megalo Strike Back in the style of The Murderer](https://www.youtube.com/watch?v=03GoJXOPrXE)**
+**Song Used: [DustSwapped Realities-The Sollicitus Murderer](https://www.youtube.com/watch?v=GOqeiesGntE)**
 
-**Song Creator: [Mad Checker](https://www.youtube.com/channel/UCkj_IkBUoU6OZhALVS4jsiA)**
+**Song Creator: [Devil Twin](https://www.youtube.com/channel/UClawx-xddWjnl7Xr_Buj_mw)**
 
 **Final Attack(s): [Mush 2 Blue](https://www.youtube.com/channel/UCMHwpcP2P4AbV1tDgz5N5XA)**
 ________________________________________________________________________________
